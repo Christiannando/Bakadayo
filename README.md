@@ -1,2 +1,3 @@
 # Bakadayo
 Repositi baka
+Aku belajar main free fire tapi terkadang aku kalah ........
